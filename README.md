@@ -1,6 +1,6 @@
 # SendMon3y.github.io
 # How to study well?
-> here are ways to do so:
+> Here are ways to do so:
 1. To keep focused on studying,  a quiet study space is a better choice to study well.
 2. During class, you may do an advance reading on the subject so that we will be able to participate.
 3. Having a study cirlce can also help since you can share the experience with another person.
